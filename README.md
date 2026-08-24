@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-AOGM941205HMCNRR09
+AOGM941205HMCNRR09
